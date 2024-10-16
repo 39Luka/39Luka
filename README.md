@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @39Luka
+- 👀 I’m interested in gaming and programming games
+- 🌱 I’m currently learning Java and improving my coding skills
+- 💞️ I’m looking to collaborate on game development projects
+- 📫 How to reach me: Discord - 39Luka#4284
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love gaming and working on creative projects in my free time!
